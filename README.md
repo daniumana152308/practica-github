@@ -1,1 +1,0 @@
-Practica de github a. 
